@@ -1,0 +1,34 @@
+# ILLIT – NOT CUTE ANYMORE
+
+> **歌詞登録ステータス：同期歌詞あり**
+
+```lrc
+[00:10.00] 용감한 내 가방
+[00:12.39] No keyring, no hand mirror
+[00:14.95] Oh, rock will never die
+[00:17.22] 린다 린다 자장가
+[00:19.90] 한정판 콩국수
+[00:22.26] Matcha보다 고소해
+[00:24.71] I'm too shy for all these
+[00:27.07] 데이트 내내 젤리슈즈
+[00:29.31] I got Suede on my vinyl
+[00:32.81] 나의 동화책
+[00:36.49] I'm not cute anymore (Uh-uh)
+[00:41.36] I'm not cute anymore (Uh-uh)
+[00:46.29] 안돼 no more, 강아지보단 난 느슨한 해파리가 좋아 (Uh-uh)
+[00:55.61] 'Cause I'm not cute anymore
+[01:00.95] 오분 컷 완벽한
+[01:03.44] My makeup tutorial
+[01:05.84] When I get super stressed
+[01:08.24] 공포영화 좀 볼까?
+[01:10.68] 근데 넌 멀었어
+[01:13.12] Oh, I don't like cherry coke
+[01:15.56] 난 외계인이 아냐
+[01:17.83] 그냥 털털한 편인 거야
+[01:20.24] I got Suede on my vinyl
+[01:23.92] 나의 동화책
+[01:27.46] I'm not cute anymore (Uh-uh)
+[01:32.27] I'm not cute anymore (Uh-uh)
+[01:37.06] 안돼 no more, 강아지보단 난 느슨한 해파리가 좋아 (Uh-uh)
+[01:46.59] 'Cause I'm not cute anymore
+```
